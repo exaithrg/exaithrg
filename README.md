@@ -1,5 +1,5 @@
 - 👋 Hi there, I’m @exaithrg
-- 👀 I’m currently interested in eating and sleeping.
+- 👀 I’m interested in eating and sleeping.
 - 🌱 I’m currently learning how to cyberloaf under the supervision of my supervisor
 
 <!---

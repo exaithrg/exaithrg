@@ -1,4 +1,4 @@
-- 👋 Hi there, I’m @exaithrg
+- 👋 Hi there, this is @exaithrg
 - 👀 I’m interested in eating and sleeping.
 - 🌱 I’m currently learning how to cyberloaf under the supervision of my supervisor
 
